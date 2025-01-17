@@ -1,0 +1,1 @@
+link to quantized models : https://iiitaphyd-my.sharepoint.com/:f:/g/personal/kukkapalli_shravya_students_iiit_ac_in/EtypZpjB4yVFqgEQpvCbR5kBH4ZHXLGg44i9iHbYXsIEaw?e=lkHp89
